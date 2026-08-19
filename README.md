@@ -1,2 +1,2 @@
 # internship-practical
-TAFRE DESMOND MAEL part of the contributor
+TAFRE DESMOND MAEL part of the contributors
